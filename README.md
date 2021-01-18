@@ -1,0 +1,1 @@
+# Studio7beautyparlor_app
